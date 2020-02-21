@@ -1,1 +1,1 @@
-editan dari github
+# pemilik
